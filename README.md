@@ -1,4 +1,4 @@
 # Practicals-Sem-6
-All Subject Pracs
+___All Subject Pracs___
 
 _____!!!!!_____
